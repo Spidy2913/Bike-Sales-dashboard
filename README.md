@@ -76,9 +76,12 @@ Certain regions demonstrate stronger interest in bike ownership.
 
 If you’d like to connect, feel free to reach out:
 
-Niranjan
-www.linkedin.com/in/niranjan-e-v-data-analyst
+Name :Niranjan
 
+LinkedIN :www.linkedin.com/in/niranjan-e-v-data-analyst
+
+
+Mail:velliangiriniranjan2002@gmail.com 
 
 
 
